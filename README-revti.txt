@@ -1,1 +1,0 @@
-Revti ka data folder
